@@ -1,1 +1,2 @@
 # Introdução
+Era uma vez uma canguru chamada Sally, uma ilustre cowgirl que cruzava o deserto com seu chapéu gasto pelo sol, e um coldre na cintura. Diziam que ela era rápida pulando... e mais rápida ainda no gatilho.
