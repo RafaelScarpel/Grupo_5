@@ -1,2 +1,3 @@
 # Introdução
 Era uma vez uma canguru chamada Sally, uma ilustre cowgirl que cruzava o deserto com seu chapéu gasto pelo sol, e um coldre na cintura. Diziam que ela era rápida pulando... e mais rápida ainda no gatilho.
+Ela vivia na sua cidade natal, Radiator Springs, no Velho Oeste do país, uma cidade pacata com poucas famílias cangurus. O dia-a-dia tranquilo do interior passava tão devagar que Sally se inconformava com o tédio. No auge dos seus 20 anos, ela queria sair e passear com os amigos, mas os poucos pontos turísticos e as esparsas festas do local a deixavam desanimada. Entretanto, a ideia de um dia sair e conhecer novas experiências era constante para Sally.
