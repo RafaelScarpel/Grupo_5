@@ -1,2 +1,4 @@
 # Introdução
 Era uma vez uma canguru chamada Sally, uma ilustre cowgirl que cruzava o deserto com seu chapéu gasto pelo sol, e um coldre na cintura. Diziam que ela era rápida pulando... e mais rápida ainda no gatilho.
+
+Sally morava em Tombstone, uma cidade localizada no estado americano do Arizona. Apesar de viver viajando, Sally constantemente era solicitada para lidar com invasões constantes de um grupo de extraterrestres em sua cidade, que tinham com objetivo transformar a cidade em um centro enorme de garimpo, pois sua terra era rica em um material extremamente escasso no planeta dos invasores, a pedra brita.
